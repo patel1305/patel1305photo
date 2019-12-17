@@ -1,1 +1,0 @@
-# patel1305photo
